@@ -1,4 +1,6 @@
-HELLO EVERYONE ! Bonjour à tous ! 
+HELLO EVERYONE ! Bonjour à tous ! ✌
+
+ABOUT ME : 
 
 - 👋 Hi, I’m @MarieRENAUDIN
 - 👀 I’m interested in Poetry
